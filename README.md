@@ -1,1 +1,3 @@
 hoge
+shizuokadaigaku
+shizuoka
